@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Inkscape for macOS script with rare Script for Inkscape for macOS - auto-retouch and version history. Featuring auto-retouch and version history, it's the best
 
 
 
